@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Bobrov Nikita Alekseevich,
+- 👋 👀 Hi, I’m Bobrov Nikita Alekseevich,
 - группа Б22-191-1зу
 - @xxaxajuj
 
